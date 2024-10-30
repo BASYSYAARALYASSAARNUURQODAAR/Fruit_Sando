@@ -1,1 +1,1 @@
-Priject Fruit sando P5 kelas 10
+Project Fruit sando P5 kelas 10
